@@ -1,1 +1,1 @@
-# Quy Learning? 🤣🤣
+# Qyu Learning ? 🤣🤣
